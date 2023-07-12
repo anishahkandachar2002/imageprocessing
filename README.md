@@ -15,6 +15,4 @@ Stpes
 4.Find the different sources
 
 
-Thank to my partner:
-
-Darshan L
+Thank to my partner: Darshan L
